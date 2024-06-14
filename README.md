@@ -8,7 +8,7 @@ Meu nome e samuel vieira
  
 
 
-![](https://tenor.com/pt-BR/view/evil-smile-grin-smirk-bad-gif-19562077)
+
 
 
 
